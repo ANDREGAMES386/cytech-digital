@@ -1,1 +1,0 @@
-# cytech-infomártica
